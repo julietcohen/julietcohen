@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 💬 Ask me about endangered species in Southern California
 📫 How to reach me: jscohen@bren.ucsb.edu
 😄 Pronouns: she/her
-⚡ Fun fact: I have a pet crested gecko
+⚡ Fun fact: I have a pet crestedd
 -->
